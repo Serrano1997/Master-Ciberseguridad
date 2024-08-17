@@ -1,2 +1,0 @@
-# Master  Ciberseguridad
-Empezamos
